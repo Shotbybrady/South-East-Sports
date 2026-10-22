@@ -1,64 +1,2 @@
 # South-East-Sports
 A south Eastern based sports journalism agency, focused on pgotgraohic story telling.
-INDEPENDENT REGIONAL SPORTS COVERAGEHIGH SCHOOL · COLLEGE · PHOTOGRAPHY
-SOUTH EAST SPORTSWHERE THE SOUTHEAST PLAYS ☰
-LATESTHIGH SCHOOLCOLLEGEPHOTOSABOUT
-
-THE SOUTHEAST IN FOCUS
-WHERE THE SOUTHEAST PLAYS.
-The moments. The matchups. The stories behind the game.
-EXPLORE COVERAGE ↗VIEW PHOTOGRAPHY →
-SESHIGH SCHOOL
-+ COLLEGE SPORTS
-01 / ORIGINAL PHOTOGRAPHY02 / LOCAL REPORTING03 / REGIONAL ATHLETICSSOUTH EAST SPORTS
-THE LATEST
-Stories worth watching.
-NEWS · FEATURES · GAME DAY
-FEATURED COVERAGE
-FROM THE FIELDSES EDITORIAL
-Every game has a story. We're here to tell it.
-South East Sports is building a home for the athletes, teams, and defining moments across high school and college sports in the Southeast.
-MEET SES →
-PHOTOGRAPHY
-PHOTO DESKGALLERIES
-The moments you don't want to miss
-Explore action, emotion, and the details that make game day unforgettable.
-EXPLORE PHOTOS →
-COLLEGE + PREP
-COMING INTO FOCUSREGIONAL SPORTS
-A new voice for Southeast athletics
-Local coverage starts here—with original work, careful reporting, and respect for the game.
-OUR COVERAGE →
-Launch note: These are introductory placeholder stories, not reports of real games. Replace them with verified coverage before presenting them as published news.
-COVERAGE AREA / 01
-Friday nights. Lasting stories.
-High school sports are the heartbeat of so many communities. SES will spotlight teams, athletes, and moments from across North Georgia and the Chattanooga region as access and coverage grow.
-SUGGEST A STORY ↗
-01HIGH SCHOOL
-SPORTS
-02COLLEGE
-SPORTS
-COVERAGE AREA / 02
-College sports. Closer to the action.
-From campus rivalries to emerging talent, follow regional college athletics through photography, features, and original reporting. Coverage will expand as assignments and credentials are approved.
-CONTACT THE DESK ↗
-THE PHOTO DESK
-Freeze the moment.
-ORIGINAL WORK. REAL STORIES.
-01THE GAME
-02THE ATMOSPHERE
-03THE DETAILS
-Gallery tiles are design placeholders. Replace them with photographs you own or are authorized to publish, and add photographer credit and captions.
-
-OUR MISSION
-Regional sports. A bigger spotlight.
-South East Sports is an independent sports-media project focused on high school and college athletics across the Southeast. Our aim is to combine strong photography with accurate, responsible reporting—and to give local sports stories the attention they deserve.
-SOUTH EAST SPORTS — WHERE THE SOUTHEAST PLAYS
-HAVE A STORY FOR US?
-Let's get it in focus.
-Send story ideas, schedule information, interview requests, or questions about coverage.
-EMAIL THE DESK ↗
-SOUTH EAST SPORTSWHERE THE SOUTHEAST PLAYS
-Independent regional sports coverage.
-ABOUTCONTACTBACK TO TOP ↑
-© South East Sports. All rights reserved.
